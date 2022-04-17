@@ -1,5 +1,5 @@
 -->😁🙋‍ Hi, this is Bal mukund.<br/>
--->🏫📚 Currently a sophomore in Electronics and Communication Department at NMIT Bangalore.<br/>
+-->🏫📚 Currently a prefinal year in Electronics and Communication Department at NMIT Bangalore.<br/>
 -->👩‍💻💻Interested in Front-End Development, Data-Science and Competitive Programming.<br/>
 -->🤝🙌Here to contribute and learn.<br/>
 
